@@ -3,6 +3,11 @@
 
 从网上搜集到的林彪所作军事相关文章。
 
+[EPub下载](https://github.com/fengshenx/SelectedWorksOfLinBiao/raw/main/%E6%9E%97%E5%BD%AA%E5%86%9B%E4%BA%8B%E6%96%87%E9%80%89.epub)
+
+[PDF下载](https://github.com/fengshenx/SelectedWorksOfLinBiao/raw/main/%E6%9E%97%E5%BD%AA%E5%86%9B%E4%BA%8B%E6%96%87%E9%80%89.pdf)
+
+
 几年前读网上流传的林彪的一篇文章《怎样当好一名师长》，逻辑缜密，娓娓道来，字里行间流露出作者的一种自律、自信、严格与霸气，也难怪他成为了我军最厉害的统帅之一。
 
 林彪的文章放在现在的社会也具有现实意义，现代企业管理也涉及到公司如何组织，战略如何制定，战术如何执行等等问题其实和当时我军面临的问题有相当的共同点。
